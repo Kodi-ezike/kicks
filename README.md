@@ -1,1 +1,1 @@
-# kicks
+https://kodi-ezike.github.io/kicks/
